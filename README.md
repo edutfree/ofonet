@@ -1,6 +1,12 @@
 # ofoNET官网地址
 
-官网：[ofonet.com](https://iry.ofoss.com/#/register?code=fWPCFrCP)
+官网：[ofonet.com](https://ofokc.com/#/register?code=fWPCFrCP)
+
+## ofoNET优惠码
+
+ofoNET 圣诞节优惠促销，全场 8 折
+
+优惠码：[MerryChristmas](https://ofokc.com/#/register?code=fWPCFrCP)
 
 ## ofoNET介绍
 
